@@ -6,4 +6,4 @@
 
 📫 How To Contact Me? TheCampingRusher#8429 At Discord!
 
-⚡ Fun fact: I Always Talk To God In Skype God Premium.
+⚡ Fun fact: I Belong To Heaven!
